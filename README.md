@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BabyNicole19
-- 👀 I’m interested in kamu "L"
-- 🌱 I’m currently learning  "tidur"    
+- 👀 I’m interested in kamu "Graphic Design"
+- 🌱 I’m currently learning  "Git And Github"    
 - 📫 How to reach me @pramandito.p9@gmail.com-089686773155
 
 <!---
